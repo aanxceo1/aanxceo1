@@ -2,21 +2,21 @@
 
 ## I'm **Achmad Anwar**  
 
-💼 **Site Administration Officer** at **PT. Rembang Bangun Persada** (Limestone Mining)  
-🔧 Responsible for **HSE, IT, and Administration**  
+🎓 **Informatics Student** at **Universitas Siber Muhammadiyah**  
+💡 Enthusiastic about **technology and digital innovation**  
 
 ---
 
 ### 🚀 About Me  
 
-🔹 Passionate about **technology**  
-🔹 Skilled in **IT infrastructure, compliance, and administrative operations**  
-🔹 Continuously learning and implementing **best practices** in mining site management  
+🔹 Interested in **IT, networking, and system management**  
+🔹 Learning about **cloud computing and automation**  
+🔹 Curious about how **technology improves efficiency in various industries**  
 
-💡 Always exploring new ways to improve productivity and safety through technology and innovation!  
+💡 Always open to new ideas and discussions about **tech, learning, and career growth**!  
 
 ---
 
 ### 🌍 Let's Connect!  
 
-🚀 Feel free to reach out for collaborations, discussions, or just a friendly chat!  
+🚀 Feel free to chat, collaborate, or just exchange ideas!
